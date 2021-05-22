@@ -1,2 +1,0 @@
-# daily-happies
-Gratitude journal
